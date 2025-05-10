@@ -16,5 +16,6 @@ The film explores themes of dream manipulation, reality vs. illusion, and the po
 - Stunning visual effects  
 - Thought-provoking themes
 - 
-![](![Inception](https://static1.moviewebimages.com/wordpress/wp-content/uploads/movie/i0DBDLhuWiY4ue0we5ebwb0W6gxRJF.jpg)
+![](https://media.giphy.com/media/PxsDr1ISo6pPO/giphy.gif)
+
 
